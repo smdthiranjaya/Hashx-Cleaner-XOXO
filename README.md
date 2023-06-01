@@ -1,3 +1,3 @@
 # Hashx-Cleaner-XOXO
-Windows 10 All Cash Cleaner ‼️
+Windows ALL IN ONE Cash Cleaner 
 ![Project Logo](/logo.jpg)
